@@ -1,4 +1,4 @@
-## Hi there 👋
+## oiii, sou a tiz do 3c  👋
 
 <!--
 **gcfsjjkoo/gcfsjjkoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
